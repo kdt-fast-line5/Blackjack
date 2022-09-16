@@ -11,3 +11,8 @@
 
 - 단, 일부 카지노에서는 딜러가 소프트 17, 즉 A-6의 경우에도 히트하는 경우도 있다. 이를 Hit soft 17, 혹은 줄여서 h17 이라고 한다. 플레이 하기 전 알아볼 것.
 
+
+블랙잭 플레이어의 플레이 방법
+
+블랙잭 플레이 방법
+https://www.pinnacle.com/ko/betting-articles/casino/how-to-play-blackjack/APN24F8ARK6VLKZN
