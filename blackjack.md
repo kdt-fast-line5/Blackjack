@@ -19,4 +19,3 @@ https://www.pinnacle.com/ko/betting-articles/casino/the-history-of-blackjack/4VF
 
 ## 블랙잭 플레이 방법
 https://www.pinnacle.com/ko/betting-articles/casino/how-to-play-blackjack/APN24F8ARK6VLKZN
-======
